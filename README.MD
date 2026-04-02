@@ -2,3 +2,4 @@
 
 
 biodata isinya ini
+kurap sampai mati
